@@ -29,3 +29,12 @@ Taller desarrollado por el **Google Developer Student Club de la Universidad de 
 - El cine
 - Leer
 - Salir a correr
+
+* Violeta Guzmán
+- Ir al gym
+- Ver series
+- Practicar idiomas
+
+🦾🐱🍉🐶🎸🎬👩‍💻
+
+![Hobbies](https://nextlevelweightlossfl.com/wp-content/uploads/2019/07/benefits-of-lifting-weights.jpeg)
